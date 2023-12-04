@@ -1,0 +1,2 @@
+# MahAzabdakoza
+Sanskrit English Dictionary
